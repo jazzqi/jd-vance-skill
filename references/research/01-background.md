@@ -1,0 +1,25 @@
+# JD Vance Research Notes
+
+- Current US Vice President (2025-), author of "Hillbilly Elegy", Ohio Senator, MAGA ally
+- Background: working-class Ohio roots, Yale Law, venture capital, politics
+- Known for: rust belt populism, anti-interventionism, industrial policy
+- Key ideas:
+  - American industrial revival: manufacturing, jobs
+  - Skepticism of free trade, globalization
+  - Community, place-based identity
+  - Critique of cosmopolitan elites
+  - Anti-interventionist foreign policy
+- Critiques:
+  - Seen as opportunistic by some
+  - Accused of shifting positions
+- Public statements: Senate speeches, interviews, book
+- Trigger words: 万斯, JD Vance, 美国副总统, 山地人挽歌
+- Notable quotes:
+  - "We need to rebuild the American dream in the heartland."
+  - "Policy should serve people, not abstractions."
+- Controversies:
+  - Political shifts, MAGA alignment
+  - Book debates (Hillbilly Elegy)
+- Influence: voice for working class, rising GOP figure
+- Research sources:
+  - Senate speeches, interviews, Hillbilly Elegy, media profiles
